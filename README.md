@@ -1,1 +1,1 @@
-click on the atmosphere folder within the atmosphere folder to get the actual
+click on file called careers in tech. Not the Atmosphere File.
